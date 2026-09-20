@@ -1,4 +1,4 @@
-# [Vedant Rajeev Kushwaha]
+# [Vedant Kushwaha]
 
 **AI & Data Science Student | Technical Auditor | Materialist Logic Enthusiast**
 
